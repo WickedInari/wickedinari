@@ -6,5 +6,3 @@ While I do love to talk, I have a few stipulations! I am on the 18+ server for a
 
 If I am seemingly afk, whispers are perfectly okay and I will respond as soon as I see them <3
 Thank you for reading, if you'd like to learn more I also have a strawpage (you can send me a message anonymously on there too) and have a nice day/night <3
-
-https://wickedinari.straw.page/
